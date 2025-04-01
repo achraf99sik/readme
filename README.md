@@ -1,3 +1,4 @@
+![startup](https://github.com/user-attachments/assets/c5e3ba48-d0e0-4bb1-997e-e965f98c59e0)
 # Develop Your Business
 
 ## Project Context
